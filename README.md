@@ -11,7 +11,7 @@
 
 • Quick, fun, and insightful—know yourself better in minutes!
 
-<img width="1898" height="876" alt="image" src="https://github.com/user-attachments/assets/12b314f3-9bf3-494f-a1ce-8c575cf21f11" />
+<img width="1883" height="818" alt="image" src="https://github.com/user-attachments/assets/eab2f31e-a852-4427-b135-0dd90a423c0d" />
 Here’s your result:
 <img width="1792" height="836" alt="image" src="https://github.com/user-attachments/assets/63186939-a035-42a8-a9ea-b6a947140877" />
 Note: This result is based on common thinking preferences and is for fun. Everyone uses both sides of their brain, and personality or skills aren’t strictly determined by left or right brain dominance.
